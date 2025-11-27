@@ -12,6 +12,6 @@ Web Development | IT Services
 
 ## Contact
 You can reach me for questions or collaborations:  
-Email: your-afrajcharniya264@gmail.com  
+Email:afrajcharniya264@gmail.com  
 Instagram: @charaniya.development
 
